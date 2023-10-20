@@ -14,4 +14,4 @@
 ![3](https://github.com/Team-Puzzling/.github/assets/48792069/c977f288-7b57-4365-9144-f9aacbdfc9ed)
 ![4](https://github.com/Team-Puzzling/.github/assets/48792069/0f6ef762-0696-49a8-860e-2ea2ea0cd9fb)
 ![5](https://github.com/Team-Puzzling/.github/assets/48792069/39ac1c82-216b-4562-91a8-c67c11fae291)
-![6](https://github.com/Team-Puzzling/.github/assets/48792069/90eca548-a716-4d65-ab47-52e933b6acb0)
+![6](https://github.com/Team-Puzzling/.github/assets/48792069/e587a3a9-a806-409a-b851-bbd1551fc872)
